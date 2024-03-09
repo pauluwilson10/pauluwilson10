@@ -9,9 +9,9 @@
 
 - 📫 How to reach me **pauluwilson10@gmail.com**
 
-- 📄 Know about my experiences [2nd year college student](2nd year college student)
+- 📄 Know about my experiences ](2nd year college student)
 
-- ⚡ Fun fact **im love with hiking....🏔️**
+- ⚡ Fun fact **I love hiking....🏔️**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
